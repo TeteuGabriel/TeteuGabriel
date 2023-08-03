@@ -15,4 +15,4 @@
 </div><br/>
 
 
-### Apaixonado por tecnologia e por esse mundo incrível da programação.
+### Apaixonado por tecnologia e por esse mundo incrível da programação 🚀.
